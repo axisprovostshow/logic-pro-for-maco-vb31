@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Logic Pro for macOS effect with Logic Pro for macOS automatic Effect: lower-thirds & real-time-effects. Featuring lower-thirds and real-time-effects, it's the
 
 
 
